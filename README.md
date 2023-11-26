@@ -1,11 +1,11 @@
 # intro-guide
 
-## This is going to github is going to have teachings from the past and present
+## This github is going to have teachings from the past and present
 
 - These teaching will be relevant to how believers ought to behave according to the word 
-- This we showcase the progress/maturation of an unbeliever, to a born-again in Christ, to a mature and sound soldier of God. 
-- We will highlight the importance of what we are getting ourselves into. Including the seriousness and severity of the Word of God. 
-- Please stay tuned, and if any questions arise. Email me @chidalu.ozumba@gmail.com and I will try to get back to you as soon as possible. 
+- This will showcase the progress/maturation of an unbeliever, to a born-again in Christ, to a mature and sound soldier of God 
+- We will highlight the importance of what we are getting ourselves into. Including the seriousness and severity of the Word of God 
+- Please stay tuned, and if any questions arise. Email me @chidalu.ozumba@gmail.com and I will try to get back to you as soon as possible 
 
 
 ## Revelations 22:16-21 is going to be our Holding Scripture. 
